@@ -1,3 +1,1 @@
-Oi, sou @Davi10080p. Sou um youtuber que as
-vezes posta vídeos, também sou gamer, e gosto de
-rock.
+Hi, I'm David. I like music, games, sports, philosophy, studying and reading. I almost always have free time.
